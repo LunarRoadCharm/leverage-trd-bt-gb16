@@ -1,4 +1,4 @@
-# 
+# ultimate bot de negociação Binance Futures addons é o melhor bot de negociação Binance Futures addons com integração API e sniper de liquidação. Seguro, confiável e otimizado para
 
 
 
